@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @I-SnOwBeR-I
+- 👀 I’m interested in web developpment, game modding and mmachine learning.
+- 🌱 I’m currently learning game modding.
+- 💞️ I’m looking to collaborate on anything, i love help each others !
